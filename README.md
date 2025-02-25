@@ -1,8 +1,8 @@
-Hi, I’m @sonushhah
-I’m interested in Software Developing
-I’m currently pursuing Bachelor's of Information Technology
-Instagram: @sonu_shhah
-- Pronouns: He/Him
+ Hi, I’m @sonushhah
+ I’m interested in Software Developing
+ I’m currently pursuing Bachelor's of Information Technology
+ Instagram: @sonu_shhah
+ Pronouns: He/Him
 
 
 <!---
